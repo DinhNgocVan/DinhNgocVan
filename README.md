@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DinhNgocVan
-- ![Uploading image.png…]()
+https://gamek.mediacdn.vn/133514250583805952/2021/2/6/scale-16125837872562012945809.jpeg
 
 
 - 👀 I’m interested in ...
